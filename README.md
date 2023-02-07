@@ -1,2 +1,2 @@
-# WhoTook7050.github.io
+# stinker
 My website where I talk about life
